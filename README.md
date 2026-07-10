@@ -25,7 +25,7 @@
 ---
 
 <p align="center">
-  <i>  “Life is full of black sorrow. Luckily, you're my ray of light.” ✨</i>
+  <b>  “Black, black sorrow” ✨</b>
 </p>
 
 <p align="center">

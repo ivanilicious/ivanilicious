@@ -25,7 +25,7 @@
 ---
 
 <p align="center">
-  <b>  “Black, black sorrow” ✨</b>
+  <b>  “Lika a black, black sorrow” ✨</b>
 </p>
 
 <p align="center">

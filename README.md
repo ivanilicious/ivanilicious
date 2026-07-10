@@ -32,7 +32,7 @@ _Few things about me !_
 
 .ᐟ **You can call me:** quozcie | cierte | zNolaq.
 
-༘ **My birthday:** May 20th 2009.
+༘ **My birthday:** May 20th - 2009.
 
 ಄ **Zodiac sign:** Taurus.
 

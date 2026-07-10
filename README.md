@@ -61,7 +61,7 @@ _Few things about me !_
 ---
 
 <p align="center">
-  <i> ༄.° That's all about me. Very basic, right? Anyways thank you so much to visit my little space. Hope you have a nice day !</i>
+  <i> ༄.° That's all about me. Very basic, right? Anyways thank you so much for visiting my little space. Hope you have a nice day !</i>
 </p>
 
 ---

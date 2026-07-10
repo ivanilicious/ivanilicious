@@ -24,7 +24,20 @@
 
 ---
 
-### “Life is full of black sorrow. Luckily, you're my ray of light.” ✨
+<p align="center">
+  <i>  “Life is full of black sorrow. Luckily, you're my ray of light.” ✨</i>
+</p>
+
+<p align="center">
+  <img src="https://cdn.discordapp.com/attachments/1482760290050244850/1525076672586711070/latest.png?ex=6a5211d5&is=6a50c055&hm=e3e6a5434e7b4f2985a7913db909b8ad46a997c4953d55639dcdba9281de7ba5" width="20%">
+</p>
+
+<p align="center">
+  <i> <a href="https://open.spotify.com/track/6ZKajrGrRN4SU87tPVmSv4?si=1fa1c770a49d4442" target="_blank">
+   <b>🎵 Playing: Black Sorrow (VIVINOS - ALNST Original Soundtrack Part.4) - Park Byeong Hoon </b>
+  </a>
+  </i>
+</p>
 
 ---
 

@@ -1,5 +1,5 @@
 <p align="center">
-  <i> "Thank you for being the victim of my shallow emotion. " </i>
+  <u><b> "Thank you for being the victim of my shallow emotion. " </b></u>
 </p>
 
 ---

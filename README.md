@@ -51,7 +51,7 @@
 
 𝄞 **My hobby:** Drawing, Listening to music, Decorating things.
 
-⚠︎ **Things I hate:** Incests, Height, Rareship or Crackship, Weird humor.
+⚠︎ **Things I hate:** Incests, Height, Rareship or Crackship, ESPECIALLY RENHENG FROM HSR, Weird humor.
 
 ‹𝟹 **Bias | Favorite Characters:** Ivan, Mizi (from Alien Stage).
 

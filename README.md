@@ -29,7 +29,7 @@
 </p>
 
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1482760290050244850/1525076672586711070/latest.png?ex=6a5211d5&is=6a50c055&hm=e3e6a5434e7b4f2985a7913db909b8ad46a997c4953d55639dcdba9281de7ba5" width="20%">
+  <img src="https://static.wikia.nocookie.net/alien-stage/images/7/77/Black_sorrow.jpg/revision/latest?cb=20240409110644" width="20%">
 </p>
 
 <p align="center">

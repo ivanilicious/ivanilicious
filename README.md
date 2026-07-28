@@ -49,9 +49,9 @@
 
 ಄ **Zodiac sign:** Taurus.
 
-𝄞 **My hobby:** Drawing, Listening to music, Decorating things.
+𝄞 **My hobby:** Drawing, Listening to music, Decorating things, Trying my luck by playing gacha game (always lose).
 
-⚠︎ **Things I hate:** Incests, Height, Rareship or Crackship, ESPECIALLY RENHENG FROM HSR, Weird humor.
+⚠︎ **Things I hate:** Incests, Height, Rareship or Crackship, Weird humor.
 
 ‹𝟹 **Bias | Favorite Characters:** Ivan, Mizi (from Alien Stage).
 
